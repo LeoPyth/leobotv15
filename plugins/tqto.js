@@ -16,7 +16,7 @@ Terimakasih Juga Untuk Kang Banned:
 ──────────────────────
 • God
 • My ortu
-• Zivfurr / Ziv San ( Me )
+• LeoPyth (Me)
 • Nurutomo
 • Adiwajshing
 • Ariffb
